@@ -6,3 +6,4 @@ Happy new year!
 Drive 12 hours home, skip today.
 happy Friday！
 Skip today, wu hu~
+Hand on some EDC.
