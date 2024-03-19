@@ -8,3 +8,4 @@ happy Friday！
 Skip today, wu hu~
 Hand on some EDC.
 Having massage now.
+Playing EDC, Skip today.
