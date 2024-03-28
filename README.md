@@ -10,3 +10,4 @@ Hand on some EDC.
 Having massage now.
 Playing EDC, Skip today.
 Happy in internet caffe.
+Debug my pc.
