@@ -11,3 +11,4 @@ Having massage now.
 Playing EDC, Skip today.
 Happy in internet caffe.
 Debug my pc.
+Playing LOL..
