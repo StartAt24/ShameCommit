@@ -15,3 +15,4 @@ Playing LOL.
 Repairing my desktop.
 Still works on repairing my pc.
 Set up develop environment.
+Prepare for tomorrow's interview.
