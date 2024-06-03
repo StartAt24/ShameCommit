@@ -18,3 +18,4 @@ Set up develop environment.
 Prepare for tomorrow's interview.
 Having barbecue outside， chill
 Massage night！
+Playing EDC！
